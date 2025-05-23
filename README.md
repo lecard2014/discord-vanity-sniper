@@ -8,5 +8,3 @@
 6. if you need help for setup text me in discord @r66i text for support and also buy faster codes
 
 # COK FAZLA CIRAK YAPIP 19 LULARI SIZ BEBELERE SALMADIGIM ICIN OZUR DILERIM ARTIK KODU ATTIM TAKILIN 19 LULARINIZDA XDDDD
-
-![Visitor Count](https://visitor-badge.glitch.me/badge?page_id=lecard2014.discord-vanity-sniper

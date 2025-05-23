@@ -7,4 +7,6 @@
 5. then run the javascript file via writing node index.js
 6. if you need help for setup text me in discord @r66i text for support and also buy faster codes
 
+discord.gg/1940 sunar...
+
 # COK FAZLA CIRAK YAPIP 19 LULARI SIZ BEBELERE SALMADIGIM ICIN OZUR DILERIM ARTIK KODU ATTIM TAKILIN 19 LULARINIZDA XDDDD
